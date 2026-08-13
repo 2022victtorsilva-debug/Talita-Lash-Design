@@ -1,1 +1,0 @@
-# Talita-Lash-Design
